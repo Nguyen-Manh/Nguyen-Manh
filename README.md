@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nguyen-Manh
+- 👀 I’m interested in Chess, Math, Game.... 
+- 🌱 I’m currently learning to become a teacher
+- 💞️ I’m looking to collaborate on not
+- 📫 How to reach me khoayb148@gmail.com
